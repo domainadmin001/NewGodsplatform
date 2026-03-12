@@ -1,2 +1,0 @@
-# NewGodsplatform
-Investment platform
